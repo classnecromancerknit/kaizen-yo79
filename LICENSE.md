@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with kaizen Scripts instant, the #1 Script. Includes fly and auto-sell for unbeatable performance.
 
 
 
